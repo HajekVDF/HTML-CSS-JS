@@ -1,1 +1,1 @@
-![Sluneční soustava](https://giphy.com/gifs/jjeLnz2QFQzUmeQkZG)
+![Sluneční soustava](https://giphy.com/gifs/jjeLnz2QFQzUmeQkZG/giphy.gif)
